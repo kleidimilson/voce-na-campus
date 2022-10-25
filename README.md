@@ -41,3 +41,16 @@ x
 **LinkedIn:**  https://www.linkedin.com/in/pachicodes/
 
 x
+
+**Resposta:** "Sou aqui do nordeste assim como tiringa uma cabra da peste, Sou também um menino sonhador metido a programador. A Campus party tem inovação que é pra mim uma paixão e me fez fazer Computação. Espero participar e esse concurso ganhar porque tecnologia me faz bem para o infinito... E além!" 
+
+**Nome:** @kleidimilson 
+
+**Twitter:** https://twitter.com/kleidimilson
+
+**LinkedIn:**  https://www.linkedin.com/in/kleidimilson/
+
+x
+
+
+
